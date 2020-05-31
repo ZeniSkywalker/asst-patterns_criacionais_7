@@ -1,0 +1,1 @@
+# asst-patterns_criacionais_7
